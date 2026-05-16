@@ -8,7 +8,15 @@
 
 <p>Il nostro obiettivo è permettere a tutti di godere di una vera esperienza di gioco, equa e senza frustrazioni. I <strong>trucchi per Honor of Kings</strong> sono stati testati da migliaia di utenti e migliorati costantemente per garantire un funzionamento impeccabile.</p>
 
-# 🔴🔴 **[👉 Clicca Qui per Scaricare i Trucchi per Honor of Kings](https://rebrand.ly/MobManiaDev)** 🔴🔴
+<div align="center">
+
+<h1>
+<a href="https://shr.pn/mobmaniadev">
+🫵🫵 CLICCA QUI PER SCARICARE I TRUCCHI 🫵🫵
+</a>
+</h1>
+
+</div>
 
 <h2>Quali risorse puoi ottenere con i trucchi per Honor of Kings?</h2>
 
@@ -103,4 +111,12 @@ No, l’intero processo si svolge online tramite una semplice interfaccia. Non s
 
 <p>Già migliaia di utenti si affidano ogni giorno ai nostri strumenti. Non restare fuori. <strong>Clicca ora</strong>, accedi al generatore e inizia subito a trasformare il tuo modo di giocare a Honor of Kings. Il futuro del tuo personaggio dipende da una semplice decisione: agire ora!</p>
 
-# 🔴🔴 **[👉 Clicca Qui per Scaricare i Trucchi per Honor of Kings](https://rebrand.ly/MobManiaDev)** 🔴🔴
+<div align="center">
+
+<h1>
+<a href="https://shr.pn/mobmaniadev">
+🫵🫵 CLICCA QUI PER SCARICARE I TRUCCHI 🫵🫵
+</a>
+</h1>
+
+</div>
